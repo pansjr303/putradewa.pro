@@ -1,6 +1,6 @@
 # putradewa.pro
 Donat Kentang: Inovasi Kreatif dalam Makanan Manis
-<Donat kentang a href =https://putradewa.pro/> adalah inovasi kreatif dalam dunia makanan manis yang memadukan rasa gurih kentang dan kelezatan donat. Dengan tekstur lembut dan cita rasa yang unik, donat kentang telah menjadi salah satu tren kuliner yang populer. Artikel ini akan membahas bagaimana donat kentang menjadi terkenal, teknik pembuatan donat kentang yang enak, serta beberapa variasi topping yang bisa Anda coba.
+[Donat kentang] (https://putradewa.pro) adalah inovasi kreatif dalam dunia makanan manis yang memadukan rasa gurih kentang dan kelezatan donat. Dengan tekstur lembut dan cita rasa yang unik, donat kentang telah menjadi salah satu tren kuliner yang populer. Artikel ini akan membahas bagaimana donat kentang menjadi terkenal, teknik pembuatan donat kentang yang enak, serta beberapa variasi topping yang bisa Anda coba.
 
 1. Asal Mula dan Popularitas:
 Donat kentang pertama kali muncul di beberapa negara Eropa, dengan penggunaan kentang sebagai bahan dasarnya untuk menggantikan sebagian tepung terigu. Tren ini kemudian menyebar ke Amerika Serikat dan Asia, di mana inovasi donat kentang mendapatkan perhatian dari para pecinta makanan manis. Donat kentang menjadi populer karena memberikan sensasi baru dan kelezatan yang berbeda dari donat tradisional.
