@@ -29,3 +29,4 @@ Donat kentang pertama kali muncul di beberapa negara Eropa, dengan penggunaan ke
 3. Variasi Topping dan Hiasan:
 Anda dapat menambahkan berbagai macam topping dan hiasan untuk memberikan sentuhan kreatif pada donat kentang Anda. Beberapa contoh variasi topping yang bisa Anda coba antara lain:
 - Cokelat Cair dan Serut: Tuangkan saus cokelat cair di atas donat dan taburi dengan serutan cokel
+<meta name="google-site-verification" content="yeEnLAYnOS72zcqo1DSc_U36ltvzns0lYsi6MKK14aA" />
