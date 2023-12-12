@@ -1,4 +1,5 @@
 # putradewa.pro
+<meta name="google-site-verification" content="yeEnLAYnOS72zcqo1DSc_U36ltvzns0lYsi6MKK14aA" />
 Donat Kentang: Inovasi Kreatif dalam Makanan Manis
 [Donat kentang] (https://putradewa.pro) adalah inovasi kreatif dalam dunia makanan manis yang memadukan rasa gurih kentang dan kelezatan donat. Dengan tekstur lembut dan cita rasa yang unik, donat kentang telah menjadi salah satu tren kuliner yang populer. Artikel ini akan membahas bagaimana donat kentang menjadi terkenal, teknik pembuatan donat kentang yang enak, serta beberapa variasi topping yang bisa Anda coba.
 
